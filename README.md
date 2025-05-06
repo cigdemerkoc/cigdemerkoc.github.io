@@ -1,2 +1,0 @@
-# cigdemerkoc.github.io
-
